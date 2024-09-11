@@ -1,2 +1,2 @@
 # brebeuf25
-## damn HAHAHHAHAHAHHA
+## di na ako sanay na wala ka
